@@ -1,6 +1,6 @@
 ### Hello everyone ,please accept my cookies🍪 👋 ###
 
-![image](https://user-images.githubusercontent.com/113121260/190149095-4c008801-198c-40fa-9354-ba523682279d.png)
+https://media.giphy.com/media/Ypu9QPf9lRlRewXHWE/giphy.gif
 
 **Sarayeo/Sarayeo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
