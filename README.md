@@ -27,7 +27,7 @@ Passionated by sports, drawing, games and reading the gore , Criminology and pol
 
 ```
 
-<img align="right" width="55%" alt="GIF" src="https://media1.giphy.com/media/IqFgUQBMSegaRZ2Nt1/giphy.gif?cid=ecf05e47lun63a3rlk01bujx03kybhoilrnr820649y6kcsa&rid=giphy.gif&ct=g"></img>
+<img align="right" width="60%" alt="GIF" src="https://media1.giphy.com/media/IqFgUQBMSegaRZ2Nt1/giphy.gif?cid=ecf05e47lun63a3rlk01bujx03kybhoilrnr820649y6kcsa&rid=giphy.gif&ct=g"></img>
 
 
 ## So what about projects ?
