@@ -1,4 +1,4 @@
-                                   ----------- Hello everyone 🍪 ------------
+                                       --------- Hello everyone 🍪 ----------
 
 </p><p align="center">
   <img align="left" width="20%" alt="GIF" src="https://i.giphy.com/media/Ypu9QPf9lRlRewXHWE/giphy.webp"/>
