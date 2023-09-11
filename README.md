@@ -42,7 +42,7 @@ it's a great way to start ,no? 😉</h4>
 </br></br></br></br></br></br></br></br></br></br></br></br></br></br></br></br></br></br></br>
 
 ## Yes it's not over yet
-- 📫 you can either reach me through  **yeokpeusseusarafiela@gmail.com or kpeusseu-sara-fiela.yeo@gmail.com**
+- 📫 you can either reach me through  **yeokpeusseusarafiela@gmail.com or kpeusseu-sara-fiela.yeo@edu.devinci.fr**
 
 <h3 align="left">And you may as well connect with me:</h3>
 <p align="left">
